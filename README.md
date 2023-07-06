@@ -4,4 +4,4 @@ Implanting and following Human Project into the City
 https://github.com/LordGrrr/Bleeding_in_Paris/wiki
 
 
-[![Medaille_fields-6834](https://github.com/LordGrrr/Bleeding_in_Paris/assets/134517577/6cd0a58b-918a-4c50-bb8d-d342a6128106)](https://github.com/LordGrrr/Cube-Kicker/wiki/%E2%96%A0_%E2%96%A0)
+[![Medaille_fields-6834](https://github.com/LordGrrr/Cube-Kicker/assets/134517577/dd6cb6bc-5bc6-43cf-8f8a-5cd2d1785ec1)](https://www.jfkairport.com/)
