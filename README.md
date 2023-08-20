@@ -5,7 +5,9 @@ Implanting and following Human Project into the City
 ## Problème détécté:  
 # La vérité des uns sur la Vie des autres....
 https://github.com/LordGrrr/Bleeding_in_Paris/wiki  
-  
+
+Frédéric Bault, vieux chnoc de presque 70 ans, doit IMPÉRATIVEMENT MOURRIR. C.à.d. ne plus vivre.
+
 Allez tous vous faire foutre avec vos idées de merdes. C Moa l'Ovule Bandes-de-Cons.  
 Le sperme dans ma gueule sont les filles de BLOWFACTORYDOTCOM
 
