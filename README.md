@@ -11,7 +11,7 @@ https://github.com/LordGrrr/Bleeding_in_Paris/wiki
 
 Allez tous vous faire foutre avec vos idées de merdes. C Moa l'Ovule Bandes-de-Cons.  
 Le sperme dans ma gueule sont les filles de BLOWFACTORYDOTCOM
-(Alias Paula Guastella, dit "la Patronne", Federica Maronne (Alias _fait de toi une femme_). 
+(Alias Paula Guastella, dit **la Patronne** e Federica Maronne (Alias _fait de toi une femme_). 
 
 ![fantasy-2824304_1920](https://github.com/LordGrrr/Bleeding_in_Paris/assets/134517577/eb3cfab8-4710-43b7-ac96-98bad6027c0b)
 
