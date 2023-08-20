@@ -3,7 +3,7 @@ Implanting and following Human Project into the City
 
 
 ## Problème détécté:  
-# La vérité des uns sur la Vie des autres....
+# La vérité des uns sur la Vie des autres.... (Alias eugénisme, qui ne sont que l'ensemble des choses qui nous détruise.)
 https://github.com/LordGrrr/Bleeding_in_Paris/wiki  
 
 **Frédéric Bault**, vieux chnoc de presque 70 ans, doit IMPÉRATIVEMENT MOURRIR. C.à.d. ne plus vivre.
