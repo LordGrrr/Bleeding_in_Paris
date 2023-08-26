@@ -1,6 +1,7 @@
 # Bleeding_in_Paris
 Implanting and following Human Project into the ze City
 
+![2b41a-ron-mueck-skulls-antidote](https://github.com/LordGrrr/Bleeding_in_Paris/assets/134517577/b24dbcaf-2671-43f4-b53d-e49b769aa25c)
 
 ## Problème détécté:  
 # La vérité des uns sur la Vie des autres....  
