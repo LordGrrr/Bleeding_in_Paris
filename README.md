@@ -1,5 +1,5 @@
 # Bleeding_in_Paris
-Implanting and following Human Project into the ze City
+Implanting and following Human Projects into the City
 ## Problème détécté:  
 # La vérité des uns sur la Vie des autres....  
 ### (Alias eugénisme, qui ne sont que l'ensemble des choses qui nous détruise.)   
