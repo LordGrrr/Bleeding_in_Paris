@@ -1,4 +1,6 @@
 # Bleeding_in_Paris
+### Divine engendre divin et divin accueil divine. Ainsi ensemble, nous refermons la porte des enfers.  
+**Démerdez-vous les autres... (oops) (oh boy) (U bleeders)**  
 ![14524982_1774419689496792_5118348960332451726_o](https://github.com/LordGrrr/Bleeding_in_Paris/assets/134517577/2324cadd-737e-4dee-bb61-17ae7d862e27)
 [Blowfactory Dream System 3D real-time - Nuit Blanche 2016 Fondation EDF](https://fb.watch/ouv4sGlnbu/)  
 # La vérité des uns sur la Vie des autres....  
