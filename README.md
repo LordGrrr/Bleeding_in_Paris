@@ -1,8 +1,6 @@
 # Bleeding_in_Paris
 
 # La vérité des uns sur la Vie des autres....  
-Le vivre de **l'intérieur** et le regarder de **l'extrieur** une fois que cela à eu lieu, sont **2 choses différentes**.  
-
 **"Les opinions sont pour les Cons. Qu'en pensez-vous?"**
 
 # Le Respect
