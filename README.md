@@ -1,5 +1,5 @@
 # Bleeding_in_Paris
-
+### Conscience veut être "animal" (_Naturel_) là où Société veut que nous soyons humains (_Culturel_).
 # La vérité des uns sur la Vie des autres....  
 **"Les opinions sont pour les Cons. Qu'en pensez-vous?"**
 
