@@ -6,6 +6,7 @@
 # Le Respect
 **Avoir de la considération pour la Conscience d'autrui.**  
 A ne pas confondre avec soumis/soumettant (cf. La Macronie).  
+  
 **Les hommes se fadent les hommes et les femmes se fadent les femmes & les hommes.  
 Elles ont double doses!.
 Paula Onzari de Blowfactory.com est la femme la plus génial de notre époque. Elle est ma divine!**
