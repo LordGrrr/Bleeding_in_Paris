@@ -5,8 +5,10 @@
 
 # Le Respect
 **Avoir de la considération pour la Conscience d'autrui.**  
-A ne pas confondre avec soumis/soumettant (cf. La Macronie).
-
+A ne pas confondre avec soumis/soumettant (cf. La Macronie).  
+**Les hommes se fadent les hommes et les femmes se fadent les femmes & les hommes.  
+Elles ont double doses!.
+Paula Onzari de Blowfactory.com est la femme la plus génial de notre époque. Elle est ma divine!**
   
 https://github.com/LordGrrr/Bleeding_in_Paris/wiki  
 ### _"Un technocrate c'est quelqu'un qui te demande ce qu'il te manque pour t'expliquer comment t'en passer."_
