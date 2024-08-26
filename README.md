@@ -21,5 +21,9 @@ https://github.com/LordGrrr/Bleeding_in_Paris/wiki
 ## hyperlink target
 ![CacaPipi drawio](https://github.com/user-attachments/assets/1594cac1-1d4a-4fef-add6-588c2190dfee)
 
+## Un problème séculaire
+![11928740_767409000036413_4662205532364812915_o](https://github.com/user-attachments/assets/2e0465ba-c8d5-4a21-9711-751511cbbe74)
+
+
 
 
