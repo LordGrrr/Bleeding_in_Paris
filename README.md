@@ -19,6 +19,7 @@ quelque chose d'accidentel avec ces sentiments, de même aussi, lorsque
 nous pensons de nouveau à ces parties de la durée, nous leur donnons le
 nom de temps.
 
+_LETTRE D'ÉPICURE A HÉRODOTE_
 # Bleeding_in_Paris
 ### Conscience veut être "animal" (_Naturel_) là où Société veut que nous soyons humains (_Culturel_).
 # La vérité des uns sur la Vie des autres....  
