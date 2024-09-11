@@ -46,6 +46,8 @@ https://github.com/LordGrrr/Bleeding_in_Paris/wiki
 ## Un problème séculaire
 ![11928740_767409000036413_4662205532364812915_o](https://github.com/user-attachments/assets/2e0465ba-c8d5-4a21-9711-751511cbbe74)
 
+##
+![2024 fr](https://github.com/user-attachments/assets/dd27b14e-01cb-4c27-a7a8-99b77676ed23)
 
 
 
