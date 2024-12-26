@@ -51,7 +51,8 @@ https://github.com/LordGrrr/Bleeding_in_Paris/wiki
 
 #
 ## Elle est ma divine!
-![2024 fr](https://github.com/user-attachments/assets/dd27b14e-01cb-4c27-a7a8-99b77676ed23)
+![2024 fr](https://github.com/user-attachments/assets/dd27b14e-01cb-4c27-a7a8-99b77676ed23)  
+(2016)
 
 
 
