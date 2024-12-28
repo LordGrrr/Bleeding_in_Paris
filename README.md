@@ -22,6 +22,10 @@ nom de temps.
 _LETTRE D'ÉPICURE A HÉRODOTE_
 # Bleeding_in_Paris
 ![262319794-f9bb4666-e515-406c-9a8a-5c4dfb14c367](https://github.com/user-attachments/assets/5307459e-9d3e-4826-9ee6-c56d129ed687)  
+## Women in Danger. Causal destination in BIG trouble!
+[![httpswww gregadunn commicroetchingsbrain-machine-interface-microetching](https://github.com/user-attachments/assets/4822f4b1-b289-4305-9564-0bd119c1921e)  
+Link](httpswww.gregadunn.commicroetchingsbrain-machine-interface-microetching)
+
 ![Saint_Leger](https://github.com/user-attachments/assets/a8b4ae55-7d94-43eb-b29a-d020bd62a8ee)
 
 ### Conscience veut être "animal" (_Naturel_) là où Société veut que nous soyons humains (_Culturel_).
