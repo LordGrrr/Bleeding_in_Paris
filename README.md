@@ -25,7 +25,7 @@ _LETTRE D'ÉPICURE A HÉRODOTE_
 ![262319794-f9bb4666-e515-406c-9a8a-5c4dfb14c367](https://github.com/user-attachments/assets/5307459e-9d3e-4826-9ee6-c56d129ed687)  
 ## Women in Danger. Causal destination in BIG trouble!
 [![httpswww gregadunn commicroetchingsbrain-machine-interface-microetching](https://github.com/user-attachments/assets/4822f4b1-b289-4305-9564-0bd119c1921e)  
-Link](https://www.gregadunn.com/microetchings/brain-machine-interface-microetching/)     
+Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-interface-microetching/)     
 **La sexualité chez l'être humain engendre des structures relationnelles "pilotées" par notre système limbique, géré par notre affect psychique Naturel.**  
 **Plus le temps passe chez l'individu et plus ces structures deviennent inertielles et perrerines à nos existences.**  
 
