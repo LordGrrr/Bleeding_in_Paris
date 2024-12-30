@@ -39,7 +39,7 @@ Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-i
 
 # Le Respect
 **Avoir de la considération pour la Conscience d'autrui.**  
-A ne pas confondre avec soumis/soumettant (cf. La Macronie).  
+**Considération** en opposition à **Mépris**.  
 
 **Considération** étant l'opposé de **mépris**. **Mépris** étant une résultante inverse de **Considération**.  
 
