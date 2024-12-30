@@ -34,7 +34,8 @@ Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-i
 ![Saint_Leger](https://github.com/user-attachments/assets/a8b4ae55-7d94-43eb-b29a-d020bd62a8ee)
 
 # La vérité des uns sur la Vie des autres reste un problème de sous-développement individuel socialement contagieux 
-**"Les opinions sont pour les Cons. Qu'en pensez-vous?"**
+**"Les opinions sont pour les Cons. Qu'en pensez-vous?"**  
+**"Si il n'y a que la vérité qui blesse, pourquoi vouloir blesser?"**
 
 # Le Respect
 **Avoir de la considération pour la Conscience d'autrui.**  
