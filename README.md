@@ -66,7 +66,7 @@ Renaud Hericord la petite merde est un médiocre **romanèsque<sup>(1)</sup> fan
 _Connasse de trayeuse à bite de merde._  
 ![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/3fd92318-519a-4a12-854d-1e2514ffd923)
 
-![1696130913581](https://github.com/user-attachments/assets/2d03c2cc-adf3-4564-9250-4af7d6693c8c)  
+![1696130913581](https://github.com/user-attachments/assets/cfda729e-94f8-412c-8e2a-c15621e6b0de)  
 Renaud Heriord le sac à merde.  
 
   
