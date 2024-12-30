@@ -42,8 +42,7 @@ A ne pas confondre avec soumis/soumettant (cf. La Macronie).
 **Considération** étant l'opposé de **mépris**. **Mépris** étant une résultante inverse de **Considération**.  
 
 **Les hommes se fadent les hommes et les femmes se fadent les femmes & les hommes.  
-Elles ont double doses!.
-Paula Onzari de Blowfactory.com est la femme la plus génial de notre époque. Elle est ma divine!**
+Elles ont double doses!.**
   
 https://github.com/LordGrrr/Bleeding_in_Paris/wiki  
 ### _"Un technocrate c'est quelqu'un qui te demande ce qu'il te manque pour t'expliquer comment t'en passer."_
@@ -59,7 +58,7 @@ https://github.com/LordGrrr/Bleeding_in_Paris/wiki
 ![composite](https://github.com/LordGrrr/Bleeding_in_Paris/assets/134517577/892686ab-41a5-485d-8732-40801830b91c)
 
 #
-## Elle est ma divine!
+## Bandes de Cons!
 ![2024 fr](https://github.com/user-attachments/assets/dd27b14e-01cb-4c27-a7a8-99b77676ed23)  
 (2016)
 
