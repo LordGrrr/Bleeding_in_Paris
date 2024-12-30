@@ -67,23 +67,23 @@ _Connasse de trayeuse à bite de merde._
 
   
 ### <sup>(1)</sup>**Romansque:** 
-adjectif et nom masculin  
+<sub>adjectif et nom masculin</sub>  
 1. Qui offre les caractères traditionnels du roman (aventures, sentiments, etc.).  
-_Aventures romanesques._  
+<sub>_Aventures romanesques._</sub> 
 2. Qui a des idées, des sentiments dignes des romans.
    
 ### <sup>(2)</sup>Fantasque
-adjectif
-1. Dont on ne peut prévoir le comportement.
-Synonymes : capricieux, changeant, lunatique
+<sub>adjectif</sub>  
+1. Dont on ne peut prévoir le comportement.  
+<sub>_Synonymes : capricieux, changeant, lunatique_</sub>
 2. Bizarre, extravagant.
 
 
 ### <sup>(3)</sup>Romantique: 
-adjectif et nom  
+<sub>adjectif et nom</sub>  
 1. Qui appartient au romantisme.  
-_La poésie romantique._  
+<sub>_La poésie romantique._</sub>  
 2. Qui évoque les attitudes et les thèmes chers aux romantiques (sensibilité, exaltation, rêverie, etc.).  
-_Un paysage romantique._  
+<sub>_Un paysage romantique._</sub> 
 
 
