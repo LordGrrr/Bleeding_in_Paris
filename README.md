@@ -64,9 +64,8 @@ Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-i
 ### <sub>@Paula GUASTELA ONZARI</sub>
 Renaud Hericord la petite merde est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là ou Loran est un pure **romantique<sup>(3)</sup>**.  
 _Connasse de trayeuse à bite de merde._  
-![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/3fd92318-519a-4a12-854d-1e2514ffd923)
-![1696130913581](https://github.com/user-attachments/assets/cfda729e-94f8-412c-8e2a-c15621e6b0de)
-<sub>Renaud Heriord le sac à merde.</sub>  
+![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/cb0a2f42-efec-4d09-9b52-fddcd21e5da8)  
+<sub>Renaud Heriord le sac à merde et sa pute gratuite de trayeuse à bite Paula.</sub>  
 
   
 ### <sup>(1)</sup>**Romansque:** 
