@@ -34,7 +34,7 @@ Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-i
 ![Saint_Leger](https://github.com/user-attachments/assets/a8b4ae55-7d94-43eb-b29a-d020bd62a8ee)
 
 ### Conscience veut être "animal" (_Naturel_) là où Société veut que nous soyons humains (_Culturel_).
-# La vérité des uns sur la Vie des autres....  
+# La vérité des uns sur la Vie des autres reste un problème de sous-développement individuel socialement contagieux 
 **"Les opinions sont pour les Cons. Qu'en pensez-vous?"**
 
 # Le Respect
