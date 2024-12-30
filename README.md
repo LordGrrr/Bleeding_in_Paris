@@ -43,7 +43,7 @@ Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-i
 
 **Considération** étant l'opposé de **mépris**. **Mépris** étant une résultante inverse de **Considération**.  
 
-**Les hommes se fadent les hommes  la femme et les femmes se fadent les femmes & les hommes.  
+**Les hommes se fadent les hommes et la femme. Les femmes se fadent les femmes, les hommes et l'homme.  
 Elles ont double doses!.**
   
 https://github.com/LordGrrr/Bleeding_in_Paris/wiki  
