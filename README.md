@@ -59,8 +59,10 @@ Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-i
 (2016)  
 
 ## Cours de Français (et non de grammaire) pour les merdes de chem-sexeur et de chem-sexeuses:
+Chem-sexeurs qui ne sont bon qu'à être éradiqués.  
+Chem-sexuses qui ne sont que des sacs à foutre et des passoire psycghique.  
 ### @Paula GUASTELA ONZARI
-Renaud Hericord la petite merde est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là ou Loran est un pure **[romantique](https://en.wikipedia.org/wiki/Romanticism)<sup>(3)</sup>**.  
+Renaud Hericord la petite merde est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là ou Loran est un pure **romantique]<sup>(3)</sup>**.  
 _Connasse de trayeuse à bite de merde._  
 ![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/3fd92318-519a-4a12-854d-1e2514ffd923)
 
