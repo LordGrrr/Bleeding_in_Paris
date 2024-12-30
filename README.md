@@ -59,19 +59,26 @@ Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-i
 (2016)  
 
 ## Cours de Français pour les merdes de chem-sexeur et de chem-sexeuses:
-@Paula: Renaud Hericord la petite merde est un médiocre romanèsque<sup>*</sup> là ou Loran est un pure [romantique](https://en.wikipedia.org/wiki/Romanticism)<sup>**</sup>.  
+@Paula: Renaud Hericord la petite merde est un médiocre romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup> là ou Loran est un pure [romantique](https://en.wikipedia.org/wiki/Romanticism)<sup>(3)</sup>.  
 _Connasse de trayeuse à bite de merde._  
 ![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/3fd92318-519a-4a12-854d-1e2514ffd923)
 
 
   
-### <sup>*</sup>**Romansque:** 
+### <sup>(1)</sup>**Romansque:** 
 adjectif et nom masculin  
 1. Qui offre les caractères traditionnels du roman (aventures, sentiments, etc.).  
 _Aventures romanesques._  
-2. Qui a des idées, des sentiments dignes des romans.  
+2. Qui a des idées, des sentiments dignes des romans.
+   
+### <sup>(2)</sup>Fantasque
+adjectif
+1. Dont on ne peut prévoir le comportement.
+Synonymes : capricieux, changeant, lunatique
+2. Bizarre, extravagant.
 
-### <sup>**</sup>Romantique: 
+
+### <sup>(3)</sup>Romantique: 
 adjectif et nom  
 1. Qui appartient au romantisme.  
 _La poésie romantique._  
