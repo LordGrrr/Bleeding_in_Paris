@@ -65,7 +65,7 @@ https://github.com/LordGrrr/Bleeding_in_Paris/wiki
 (2016)  
 
 ## Cours de Français pour les merdes de chem-sexeur et de chem-sexeuses:
-@Paula: Renaud Hericord la petite merde est un médiocre Romanèsque<sup>*</sup> là ou Loran est un pure [Romantique](https://en.wikipedia.org/wiki/Romanticism)<sup>**</sup>.  
+@Paula: Renaud Hericord la petite merde est un médiocre romanèsque<sup>*</sup> là ou Loran est un pure [romantique](https://en.wikipedia.org/wiki/Romanticism)<sup>**</sup>.  
 _Connasse trayeuse à bite de merde._  
 ![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/3fd92318-519a-4a12-854d-1e2514ffd923)
 
