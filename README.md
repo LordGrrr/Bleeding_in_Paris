@@ -58,7 +58,7 @@ Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-i
 ![2024 fr](https://github.com/user-attachments/assets/dd27b14e-01cb-4c27-a7a8-99b77676ed23)  
 (2016)  
 
-## Cours de Français pour les merdes de chem-sexeur et de chem-sexeuses:
+## Cours de Français (et non de grammaire) pour les merdes de chem-sexeur et de chem-sexeuses:
 ### @Paula GUASTELA ONZARI
 Renaud Hericord la petite merde est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là ou Loran est un pure **[romantique](https://en.wikipedia.org/wiki/Romanticism)<sup>(3)</sup>**.  
 _Connasse de trayeuse à bite de merde._  
