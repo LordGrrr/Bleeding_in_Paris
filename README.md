@@ -91,7 +91,8 @@ _Connasse de trayeuse à bite de merde._
 2. Qui évoque les attitudes et les thèmes chers aux romantiques (sensibilité, exaltation, rêverie, etc.).  
 <sub>_Un paysage romantique._</sub>
 
-![s4](https://github.com/user-attachments/assets/6c4ac5b8-2dcd-4ea4-95d1-a648ae8a6906)
+![s4](https://github.com/user-attachments/assets/fa69d8d2-cf93-4353-b289-c91ff624d138)
+
 
 
 
