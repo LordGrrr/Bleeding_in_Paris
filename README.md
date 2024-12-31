@@ -71,7 +71,7 @@ _Connasse de trayeuse à bite de merde._
 <sub>Renaud Heriord le sac à merde et sa pute gratuite de trayeuse à bite Paula. [Demo](https://fr.pornhub.com/view_video.php?viewkey=673655d2b5826)</sub>  
 
   
-### <sup>(1)</sup>**Romansque:** 
+### <sup>(1)</sup>**Romansèque:** 
 <sub>adjectif et nom masculin</sub>  
 1. Qui offre les caractères traditionnels du roman (aventures, sentiments, etc.).  
 <sub>_Aventures romanesques._</sub> 
