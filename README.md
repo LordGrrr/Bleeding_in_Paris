@@ -42,7 +42,7 @@ Eon Odyssey](https://youtu.be/VaMsxhAGFSg?si=y34AeWcUsDUjehqp)
 
 # Le Respect
 **Avoir de la considération pour la Conscience d'autrui.**  
-**Considération** en opposition à **Mépris**. Cela implique que pour mépriser quelqu'un, il faut déjà l'avoir consiérer.    
+**Considération** en opposition à **Mépris**. Cela implique que pour mépriser quelqu'un, il faut déjà l'avoir consiéré.    
 
 ### _"Un technocrate c'est quelqu'un qui te demande ce qu'il te manque pour t'expliquer comment t'en passer."_
 ![coluche-a-moto-kawasaki-900-z1](https://github.com/LordGrrr/Bleeding_in_Paris/assets/134517577/95f3fbc8-f195-46c6-92a8-0bbf9c2f839c)  
