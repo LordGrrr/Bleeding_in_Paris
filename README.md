@@ -70,7 +70,7 @@ Photo prise avant 2017
 **Chem-sexeuses** qui ne sont que des sacs à foutre et des passoires psychiques.  
 ### <sub>@Paula GUASTELA ONZARI</sub>
 Renaud Hericord la petite merde est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là ou Loran est un pure **romantique<sup>(3)</sup>**.  
-_Connasse de trayeuse à bite de merde._  
+_Connasse de trayeuse à bite Hericordienne de merde._  
 ![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/cb0a2f42-efec-4d09-9b52-fddcd21e5da8)  
 <sub>Renaud Heriord le sac à merde et sa pute gratuite de trayeuse à bite Paula. [Demo](https://fr.pornhub.com/view_video.php?viewkey=673655d2b5826)</sub>  
 
