@@ -55,7 +55,7 @@ Eon Odyssey](https://youtu.be/VaMsxhAGFSg?si=y34AeWcUsDUjehqp)
 Photo prise avant 2017  
   
 [![Sans titre](https://github.com/user-attachments/assets/617fc58a-5708-4e78-9792-5fb69080f731)  
-2024-Street View. WTF!](https://maps.app.goo.gl/jDU8thxgNreZQ9og7)  
+2024-Street View. Œuvre artistique retouché<sup>saccagé</sup> par de l'Officiel!](https://maps.app.goo.gl/jDU8thxgNreZQ9og7)  
 
 ##
 ![composite](https://github.com/LordGrrr/Bleeding_in_Paris/assets/134517577/892686ab-41a5-485d-8732-40801830b91c)
