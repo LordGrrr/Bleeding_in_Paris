@@ -63,7 +63,7 @@ Eon Odyssey](https://youtu.be/VaMsxhAGFSg?si=y34AeWcUsDUjehqp)
 
 ## Cours de Français (et non de grammaire) pour les merdes de chem-sexeurs et de chem-sexeuses:
 **Chem-sexeurs** qui ne sont bons qu'à être éradiqués.  
-**Chem-sexuses** qui ne sont que des sacs à foutre et des passoires psychiques.  
+**Chem-sexeuses** qui ne sont que des sacs à foutre et des passoires psychiques.  
 ### <sub>@Paula GUASTELA ONZARI</sub>
 Renaud Hericord la petite merde est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là ou Loran est un pure **romantique<sup>(3)</sup>**.  
 _Connasse de trayeuse à bite de merde._  
