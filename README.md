@@ -68,7 +68,7 @@ Photo prise avant 2017
 ## Cours de Français (et non de grammaire) pour les merdes de chem-sexeurs et de chem-sexeuses:
 **Chem-sexeurs** qui ne sont bons qu'à être éradiqués.  
 **Chem-sexeuses** qui ne sont que des sacs à foutre et des passoires psychiques.  
-### <sub>@Paula GUASTELA ONZARI</sub>
+### <sub>@Paula GUASTELLA ONZARI</sub>
 Renaud Hericord la petite merde est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là ou Loran est un pure **romantique<sup>(3)</sup>**.  
 _Connasse de trayeuse à bite Hericordienne de merde._  
 ![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/cb0a2f42-efec-4d09-9b52-fddcd21e5da8)  
