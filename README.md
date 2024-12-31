@@ -86,6 +86,9 @@ _Connasse de trayeuse à bite de merde._
 1. Qui appartient au romantisme.  
 <sub>_La poésie romantique._</sub>  
 2. Qui évoque les attitudes et les thèmes chers aux romantiques (sensibilité, exaltation, rêverie, etc.).  
-<sub>_Un paysage romantique._</sub> 
+<sub>_Un paysage romantique._</sub>
+
+![s4](https://github.com/user-attachments/assets/27bcf00d-c9af-4ce9-a002-45da5ac42dad)
+
 
 
