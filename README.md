@@ -27,6 +27,9 @@ _LETTRE D'ÉPICURE A HÉRODOTE_
 [![httpswww gregadunn commicroetchingsbrain-machine-interface-microetching](https://github.com/user-attachments/assets/4822f4b1-b289-4305-9564-0bd119c1921e)  
 Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-interface-microetching/)     
 
+[![Sans titre](https://github.com/user-attachments/assets/1bb18fff-3e9e-4173-b433-df4452a2cb9b)  
+Eon Odyssey](https://youtu.be/VaMsxhAGFSg?si=y34AeWcUsDUjehqp)  
+  
 ## Big Scoop Bleeders
 **La sexualité chez l'être humain engendre des structures relationnelles "pilotées" par notre système limbique, géré par notre affect psychique Naturel.**  
 **Plus le temps passe chez l'individu et plus ces structures deviennent inertielles et perrerines à nos existences.**  
