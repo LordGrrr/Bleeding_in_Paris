@@ -51,8 +51,11 @@ Eon Odyssey](https://youtu.be/VaMsxhAGFSg?si=y34AeWcUsDUjehqp)
 ## hyperlink target
 ![CacaPipi drawio](https://github.com/user-attachments/assets/1594cac1-1d4a-4fef-add6-588c2190dfee)
 ## Un problème séculaire
-[![11928740_767409000036413_4662205532364812915_o](https://github.com/user-attachments/assets/2e0465ba-c8d5-4a21-9711-751511cbbe74)  
-Street View](https://maps.app.goo.gl/jDU8thxgNreZQ9og7)  
+![11928740_767409000036413_4662205532364812915_o](https://github.com/user-attachments/assets/2e0465ba-c8d5-4a21-9711-751511cbbe74)  
+Photo prise avant 2017  
+  
+[![Sans titre](https://github.com/user-attachments/assets/617fc58a-5708-4e78-9792-5fb69080f731)  
+2024-Street View. WTF!](https://maps.app.goo.gl/jDU8thxgNreZQ9og7)  
 
 ##
 ![composite](https://github.com/LordGrrr/Bleeding_in_Paris/assets/134517577/892686ab-41a5-485d-8732-40801830b91c)
