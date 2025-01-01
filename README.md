@@ -66,8 +66,7 @@ Photo prise avant 2017
 (2016)  
 
 ## Cours de Français (et non de grammaire) pour les merdes de chem-sexeurs et de chem-sexeuses:
-**Chem-sexeurs** qui ne sont bons qu'à être éradiqués.  
-**Chem-sexeuses** qui ne sont que des sacs à foutre et des passoires psychiques.  
+
 ### <sub>@Paula GUASTELLA ONZARI, promise BEYSSON</sub>
 Renaud Hericord<sup>la petite merde</sup> est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là où BEYSSON<sup>alias LordGrrr</sup> est un pure **romantique<sup>(3)</sup>**.  
 ### <sup>(1)</sup>**Romansèque:** 
@@ -83,7 +82,8 @@ Renaud Hericord<sup>la petite merde</sup> est un médiocre **romanèsque<sup>(1)
 2. Bizarre, extravagant.  
  ![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/592d8ec7-0923-4dbc-8c69-fd6ceb0d0e9e)  
 <sub>Renaud Heriord le sac à merde et sa trayeuse personnel pour lui et ceux qui l'on aidé à capturer Paula d'Argentine. [Demo](https://fr.pornhub.com/view_video.php?viewkey=673655d2b5826)</sub>  
-
+**Chem-sexeurs** qui ne sont bons qu'à être éradiqués.  
+**Chem-sexeuses** qui ne sont que des sacs à foutre et des passoires psychiques.  
   
 
 
