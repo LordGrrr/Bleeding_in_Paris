@@ -69,7 +69,7 @@ Photo prise avant 2017
 **Chem-sexeurs** qui ne sont bons qu'à être éradiqués.  
 **Chem-sexeuses** qui ne sont que des sacs à foutre et des passoires psychiques.  
 ### <sub>@Paula GUASTELLA ONZARI, promise BEYSSON</sub>
-Renaud Hericord<sup>la petite merde</sup> est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là où Loran<sup>Laurent Beysson alias LordGrrr</sup> est un pure **romantique<sup>(3)</sup>**.  
+Renaud Hericord<sup>la petite merde</sup> est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là où BEYSSON<sup>alias LordGrrr</sup> est un pure **romantique<sup>(3)</sup>**.  
 ### <sup>(1)</sup>**Romansèque:** 
 <sub>adjectif et nom masculin</sub>  
 1. Qui offre les caractères traditionnels du roman (aventures, sentiments, etc.).  
