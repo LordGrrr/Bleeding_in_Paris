@@ -60,32 +60,6 @@ Photo prise avant 2017
 ##
 ![composite](https://github.com/LordGrrr/Bleeding_in_Paris/assets/134517577/892686ab-41a5-485d-8732-40801830b91c)
 
-#
-## Bandes de Cons!
-![2024 fr](https://github.com/user-attachments/assets/dd27b14e-01cb-4c27-a7a8-99b77676ed23)  
-(2016)  
-
-## Cours de Français (et non de grammaire) pour les merdes de chem-sexeurs et de chem-sexeuses:
-
-### <sub>@Paula GUASTELLA ONZARI, promise BEYSSON</sub>
-Renaud Hericord<sup>la petite merde</sup> est un médiocre **romanèsque<sup>(1)</sup> fantasque<sup>(2)</sup>** là où BEYSSON<sup>alias LordGrrr</sup> est un pure **romantique<sup>(3)</sup>**.  
-### <sup>(1)</sup>**Romansèque:** 
-<sub>adjectif et nom masculin</sub>  
-1. Qui offre les caractères traditionnels du roman (aventures, sentiments, etc.).  
-<sub>_Aventures romanesques._</sub> 
-2. Qui a des idées, des sentiments dignes des romans.
-   
-### <sup>(2)</sup>Fantasque
-<sub>adjectif</sub>  
-1. Dont on ne peut prévoir le comportement.  
-<sub>_Synonymes : capricieux, changeant, lunatique_</sub>
-2. Bizarre, extravagant.  
-![H3c4376b6d9f446fdbaaca166102bbf06X jpg_300x300](https://github.com/user-attachments/assets/bee265a2-b5e0-4510-b5a1-18e01faefec0)  
-<sub>Renaud Heriord le sac à merde et sa trayeuse personnel pour lui et ceux qui l'on aidé à capturer Paula d'Argentine. [Demo](https://fr.pornhub.com/view_video.php?viewkey=673655d2b5826)</sub>  
-**Chem-sexeurs** qui ne sont bons qu'à être éradiqués.  
-**Chem-sexeuses** qui ne sont que des sacs à foutre et des passoires psychiques.  
-  
-
 
 
 ### <sup>(3)</sup>Romantique: 
