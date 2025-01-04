@@ -1,9 +1,8 @@
 
-![LB Photo Identité](https://github.com/user-attachments/assets/395a1503-75bc-4cac-8962-e4c546456f16)
-
-# Bleeding_in_Paris
-**SECU**  
+![LB Photo Identité](https://github.com/user-attachments/assets/395a1503-75bc-4cac-8962-e4c546456f16)  
 ![262319794-f9bb4666-e515-406c-9a8a-5c4dfb14c367](https://github.com/user-attachments/assets/5307459e-9d3e-4826-9ee6-c56d129ed687)  
+# Bleeding_in_Paris
+
 ## Women in Danger. Causal destination in BIG trouble!
 [![httpswww gregadunn commicroetchingsbrain-machine-interface-microetching](https://github.com/user-attachments/assets/a72f6354-2403-4b58-8f62-93e527d6afc2)  
 Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-interface-microetching/)     
