@@ -5,7 +5,8 @@
 ## Big Scoop Bleeders
 ### La sexualité chez l'être humain engendre des structures relationnelles "pilotées" par notre système limbique, géré par notre affect psychique Naturel. 
 ### Plus le temps passe chez l'individu et plus ces structures deviennent inertielles et perrerines à nos existences.  
-  
+# Les Chem-sexeurs et les chem-sexeuses détruisent la société
+###  Suprimer leur les anxiolitiques et ils s'effondreront comme des merdes qu'ils sont.
 ## Women in Danger. Causal destination in BIG trouble!
 [![httpswww gregadunn commicroetchingsbrain-machine-interface-microetching](https://github.com/user-attachments/assets/a72f6354-2403-4b58-8f62-93e527d6afc2)  
 Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-interface-microetching/)     
