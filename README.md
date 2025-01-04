@@ -2,7 +2,10 @@
 ![LB Photo Identité](https://github.com/user-attachments/assets/395a1503-75bc-4cac-8962-e4c546456f16)  
 ![262319794-f9bb4666-e515-406c-9a8a-5c4dfb14c367](https://github.com/user-attachments/assets/5307459e-9d3e-4826-9ee6-c56d129ed687)  
 # Bleeding_in_Paris
-
+## Big Scoop Bleeders
+### La sexualité chez l'être humain engendre des structures relationnelles "pilotées" par notre système limbique, géré par notre affect psychique Naturel. 
+### Plus le temps passe chez l'individu et plus ces structures deviennent inertielles et perrerines à nos existences.  
+  
 ## Women in Danger. Causal destination in BIG trouble!
 [![httpswww gregadunn commicroetchingsbrain-machine-interface-microetching](https://github.com/user-attachments/assets/a72f6354-2403-4b58-8f62-93e527d6afc2)  
 Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-interface-microetching/)     
@@ -10,10 +13,7 @@ Brain Machine Interface](https://www.gregadunn.com/microetchings/brain-machine-i
 [![Sans titre](https://github.com/user-attachments/assets/1bb18fff-3e9e-4173-b433-df4452a2cb9b)  
 Eon Odyssey](https://youtu.be/VaMsxhAGFSg?si=y34AeWcUsDUjehqp)  
   
-## Big Scoop Bleeders
-**La sexualité chez l'être humain engendre des structures relationnelles "pilotées" par notre système limbique, géré par notre affect psychique Naturel.**  
-**Plus le temps passe chez l'individu et plus ces structures deviennent inertielles et perrerines à nos existences.**  
-  
+
 ![Saint_Leger](https://github.com/user-attachments/assets/a8b4ae55-7d94-43eb-b29a-d020bd62a8ee)
 
 # La vérité des uns sur la Vie des autres reste un problème de sous-développement individuel socialement contagieux 
