@@ -2,10 +2,13 @@
 ![LB Photo Identité](https://github.com/user-attachments/assets/395a1503-75bc-4cac-8962-e4c546456f16)  
 ![262319794-f9bb4666-e515-406c-9a8a-5c4dfb14c367](https://github.com/user-attachments/assets/5307459e-9d3e-4826-9ee6-c56d129ed687)  
 # Bleeding_in_Paris
+"La plupart des gens, quoi qu’ils puissent penser et dire de leur « égoïsme », ne font rien, leur vie durant, pour leur ego, mais seulement pour le fantôme d’ego qui s’est formé d’eux dans l’esprit de leur entourage avant de se communiquer à eux ; -par conséquent, ils vivent tous dans une nuée d’opinions à demi personnelles ou impersonnelles, d’appréciations arbitraires et pour ainsi dire fictives, l’un à l’égard de l’autre, et ainsi de suite toujours l’un dans l’esprit de l’autre. Étrange monde de fantasmes qui sait se donner une apparence si raisonnable !"  
+**Nietzsche, Aurore, 1881**
+  
 ## Big Scoop Bleeders
 ### La sexualité chez l'être humain engendre des structures relationnelles "pilotées" par notre système limbique, géré par notre affect psychique Naturel. 
 ### Plus le temps passe chez l'individu et plus ces structures deviennent inertielles et perrerines à nos existences.  
-# Les Chem-sexeurs et les chem-sexeuses détruisent la société
+# Les Chem-sexeurs et leurs chem-sexeuses détruisent la société
 ###  Suprimez leur les anxiolitiques et ils s'effondreront comme des merdes qu'ils sont.
 ## Women in Danger. Causal destination in BIG trouble!
 [![httpswww gregadunn commicroetchingsbrain-machine-interface-microetching](https://github.com/user-attachments/assets/a72f6354-2403-4b58-8f62-93e527d6afc2)  
