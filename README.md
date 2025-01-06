@@ -2,7 +2,7 @@
 ![LB Photo Identité](https://github.com/user-attachments/assets/395a1503-75bc-4cac-8962-e4c546456f16)  
 ![262319794-f9bb4666-e515-406c-9a8a-5c4dfb14c367](https://github.com/user-attachments/assets/5307459e-9d3e-4826-9ee6-c56d129ed687)  
 # Bleeding_in_Paris
-"La plupart des gens, quoi qu’ils puissent penser et dire de leur « égoïsme », ne font rien, leur vie durant, pour leur ego, mais seulement pour le fantôme d’ego qui s’est formé d’eux dans l’esprit de leur entourage avant de se communiquer à eux ; -par conséquent, ils vivent tous dans une nuée d’opinions à demi personnelles ou impersonnelles, d’appréciations arbitraires et pour ainsi dire fictives, l’un à l’égard de l’autre, et ainsi de suite toujours l’un dans l’esprit de l’autre. Étrange monde de fantasmes qui sait se donner une apparence si raisonnable !"  
+_"La plupart des gens, quoi qu’ils puissent penser et dire de leur « égoïsme », ne font rien, leur vie durant, pour leur ego, mais seulement pour le fantôme d’ego qui s’est formé d’eux dans l’esprit de leur entourage avant de se communiquer à eux ; -par conséquent, ils vivent tous dans une nuée d’opinions à demi personnelles ou impersonnelles, d’appréciations arbitraires et pour ainsi dire fictives, l’un à l’égard de l’autre, et ainsi de suite toujours l’un dans l’esprit de l’autre. Étrange monde de fantasmes qui sait se donner une apparence si raisonnable !"_  
 **Nietzsche, Aurore, 1881**
   
 ## Big Scoop Bleeders
